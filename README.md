@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @noimno
-- 👀 I’m interested in sleeping
-- 🌱 I’m currently sleeping
-- 💞️ I’m looking to collaborate on sleeping
-- 📫 How to reach me you cant im sleeping 
+- 👋 Hi, I’m sus
+- 👀 I’m interested in among us
+- 🌱 I’m currently sus
+- 💞️ I’m looking to collaborate on sus
+- 📫 How to reach me im sus
 
 <!---
 noimno/noimno is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
