@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @noimno
-- 👀 I’m interested in hacking :]
-- 🌱 I’m currently learning history
-- 💞️ I’m looking to collaborate on ?
-- 📫 How to reach me idk i dont have a phone or anything only a school Laptop 😂 
+- 👀 I’m interested in sleeping
+- 🌱 I’m currently sleeping
+- 💞️ I’m looking to collaborate on sleeping
+- 📫 How to reach me you cant im sleeping 
 
 <!---
 noimno/noimno is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
